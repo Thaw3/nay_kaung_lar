@@ -1,2 +1,11 @@
-# nay_kaung_lar
+
+
+
+Kaung Wai Zin
+
+
+I am Hmue
+
+kkks
+
 thu kha min tun
